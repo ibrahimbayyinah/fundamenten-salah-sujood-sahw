@@ -14,7 +14,7 @@ De pilaren zijn:
 
 4. Rukoo' (knielen). Het minimum hiervan is dat men buigt zodat de handen de knieën kunnen raken. Maar de beste en meest complete vorm is om de rug recht te houden en het hoofd parallel daarmee.
 
-5. Weer opkomen rukoo'.
+5. Weer opkomen na rukoo'.
 
 6. Even recht blijven staan na rukoo'.
 
@@ -56,8 +56,27 @@ Dit zijn de 8 verplichte onderdelen:
 
 8. Zitten bij het reciteren van de eerste tashahhud.
 
-Zowel de 14 pilaren als de 8 verplichte onderdelen mag een moslim niet opzettelijk weglaten. Wanneer hij het opzettelijk weglaat, dan is het gebed onaanvaardbaar. Het verschil tussen een pilaar en een verplicht deel is: wanneer je een pilaar vergeet uit te voeren, dan moet je terug gaan en die uitvoeren. En op het einde van het gebed moet je dan "sujood as-sahw" (sajda van vergetelheid) uitvoeren. Wanneer je één van de 8 verplichte onderdelen vergeet uit te voeren, dan hoef je niet terug te gaan om die uit te voeren. Je kan dan gewoon verder doen met het gebed. En op het einde moet je ook "sujood as-sahw" uitvoeren.
+Zowel de 14 pilaren als de 8 verplichte onderdelen mag een moslim niet opzettelijk weglaten. Wanneer hij het opzettelijk weglaat, dan is het gebed onaanvaardbaar. Het verschil tussen een pilaar en een verplicht deel is: wanneer je een pilaar vergeet uit te voeren, dan moet je terug gaan en die uitvoeren. En op het einde van het gebed moet je dan "sujood as-sahw" (de prostratie van vergetelheid) uitvoeren. Wanneer je één van de 8 verplichte onderdelen vergeet uit te voeren, dan hoef je niet terug te gaan om die uit te voeren. Je kan dan gewoon verder doen met het gebed. En op het einde moet je ook "sujood as-sahw" uitvoeren.
 
 ## Sujood as-sahw
+
+Sujood as-sahw dient uitgevoerd te worden voor volgende redenen:
+
+1. Iets extra toevoegen aan het gebed
+2. Iets weglaten van het gebed
+3. Bij onzekerheid
+
+Voorbeelden hiervan zijn:
+
+1. Iets extra toevoegen: bijvoorbeeld een extra rukoo', sajda, zitting, etc.
+2. Iets weglaten: bijvoorbeeld iets van de pilaren of verplichte onderdelen weglaten.
+3. Onzekerheid: bijvoorbeeld wanneer een person onzeker is over hoeveel rak'ahs (cycli) hij/zij gebeden heeft: of het er nu 3 of 4 waren bijvoorbeeld.
+
+### Onzekerheid
+
+In het geval van onzekerheid, kan het nog opgesplitst worden in 2 scenario's:
+
+1. Je bent meer zeker van de ene optie dan de andere.
+2. Geen van beide opties
 
 [^1]: Betekenis van "loven": danken, verheerlijken, op prijs stellen, e.d. Manieren om Allah SWT te loven: "alhamdu lillah" (alle lof en dank is voor Allah), "Allahu akbar" (Allah is De Grootste), "subhan Allah" (verheven is Allah), "alhamdu lillahi Rabbil 'alameen" (alle lof en dank is voor Allah, Meester van de werelden: mensen, natuur en alles wat geschapen is).
