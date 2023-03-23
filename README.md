@@ -77,6 +77,20 @@ Voorbeelden hiervan zijn:
 In het geval van onzekerheid, kan het nog opgesplitst worden in 2 scenario's:
 
 1. Je bent meer zeker van de ene optie dan de andere.
-2. Geen van beide opties
+2. Geen van beide opties lijkt meer waarschijnlijk.
+
+In het eerste geval, dus wanneer je denkt dat het ene waarschijnlijker is dan het andere, dan moet je het gebed verderzetten met hetgene waarvan je denkt dat meer waarschijnlijk is. Rond het gebed af en verricht dan sujood as-sahw **na de salaam**.
+
+In het geval dat geen van beide opties meer waarschijnlijk lijkt, moet je het gebed verderzetten met wat zeker is. Bijvoorbeeld: als je twijfelt of je 3 of 4 rak'ahs hebt verricht, dan moet je het minste van de twee nemen: 3. Dat is omdat het zeker is dat je al 3 rak'ahs hebt gedaan. De 4de is de onzekere. Dus verricht het gebed verder op basis van 3 rak'ahs en verricht dan sujood as-sahw **voor de salaam**.
 
 [^1]: Betekenis van "loven": danken, verheerlijken, op prijs stellen, e.d. Manieren om Allah SWT te loven: "alhamdu lillah" (alle lof en dank is voor Allah), "Allahu akbar" (Allah is De Grootste), "subhan Allah" (verheven is Allah), "alhamdu lillahi Rabbil 'alameen" (alle lof en dank is voor Allah, Meester van de werelden: mensen, natuur en alles wat geschapen is).
+
+Referenties:
+
+- https://islamqa.info/en/answers/12527/reasons-for-doing-the-prostration-of-forgetfulness
+
+- https://islamqa.info/en/answers/77430/when-should-the-prostration-of-forgetfulness-be-done-and-what-should-be-said-in-it
+
+- https://islamqa.info/en/answers/34689/what-is-to-be-said-in-the-prostration-of-forgetfulness-and-the-prostration-of-recitation
+
+- https://islamqa.info/en/answers/34570/should-a-person-do-the-prostration-of-forgetfulness-for-absentmindedness
