@@ -72,6 +72,14 @@ Voorbeelden hiervan zijn:
 2. Iets weglaten: bijvoorbeeld iets van de pilaren of verplichte onderdelen weglaten.
 3. Onzekerheid: bijvoorbeeld wanneer een person onzeker is over hoeveel rak'ahs (cycli) hij/zij gebeden heeft: of het er nu 3 of 4 waren bijvoorbeeld.
 
+### Hoe sujood as-sahw verrichten
+
+Sujood as-sahw verricht je netzoals de sujood van het gebed:
+
+1. Eerste sajda verrichten. "Subhana Rabbiy Al-'Alaa" zeggen tijdens de sajda.
+2. Recht zitten netzoals je zit tussen de 2 sajdas van het gebed. "Rabbi ighfir li" zeggen tijdens deze zitting.
+3. Tweede sajda verrichten. "Subhana Rabbiy Al-'Alaa" zeggen tijdens de sajda.
+
 ### Onzekerheid
 
 In het geval van onzekerheid, kan het nog opgesplitst worden in 2 scenario's:
