@@ -1,6 +1,6 @@
-# Pilaren, verplichte delen van het gebed en sujood as-sahw
+# Pilaren, verplichte delen van het gebed en sujood as-sahw 🕌
 
-## Pilaren van salah
+## 14 pilaren van salah
 
 Er zijn 14 pilaren van het gebed. Deze **moeten** absoluut gebeuren voordat een gebed aanvaardbaar wordt.
 
